@@ -1,4 +1,4 @@
-# 
+# custom bot de sniper NFT ejecutor es el mejor bot de sniper NFT ejecutor con análisis de rareza y control de deslizamiento. Seguro, confiable y optimizado para estrategias de
 
 
 
